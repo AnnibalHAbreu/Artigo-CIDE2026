@@ -1,1 +1,1 @@
-# Artig-CIDE2026-
+# Artigo para o CIDE2026
